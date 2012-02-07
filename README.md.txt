@@ -1,0 +1,1 @@
+Dette er bare en testmappe. Nothing more exciting than that. LOL
